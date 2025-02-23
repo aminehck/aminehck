@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **akachamohamedamine@gmail.com**
 
-- 📄 Know about my experiences [shorturl.at/dtJT8](shorturl.at/dtJT8)
+- 📄 Know about my experiences [shorturl.at/dtJT8](https://www.aminehck.com/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
